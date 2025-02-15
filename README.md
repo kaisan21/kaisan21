@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kaisan21
 - 👀 I’m interested in python Programming
 - 🌱 I’m currently learning Machine Learning 
-- 💞️ I’m looking to collaborate on Saidul Raihan
+- 💞️ Owner and CEO of Ai Of Infinity ♾️ 
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I am a gentel boy <3
